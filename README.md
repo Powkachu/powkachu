@@ -1,1 +1,1 @@
-👩‍💻 JavaScript enthousiast 
+👩‍💻 JavaScript enthusiast 
